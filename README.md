@@ -1,0 +1,2 @@
+# Myspins-casino-ersteinzahlungsgeschenk-Deutschland
+Автоматически созданный репозиторий
